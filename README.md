@@ -1,1 +1,0 @@
-# Marketplace-de-Economia-Circular-do-Campus
